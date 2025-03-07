@@ -1,8 +1,9 @@
 =)
 
-![image](https://github.com/patodoldan/patodoldan/assets/22521975/90fe2322-1c54-4624-bbdb-421647fae26a)
+01/2021 -> 03/2025
+![image](https://github.com/user-attachments/assets/091396cb-d240-4e43-bb2d-f633b0191d78)
 
 
-Repositorios privados:
 
-![image](https://github.com/patodoldan/patodoldan/assets/22521975/2772312f-de1c-429f-a2cd-87b1d7481eed)
+Repositorios privados al 03/2025:
+![image](https://github.com/user-attachments/assets/f82e4ca9-c850-4de9-a6c0-849109c2029e)
